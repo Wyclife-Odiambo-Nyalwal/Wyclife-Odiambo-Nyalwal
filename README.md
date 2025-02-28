@@ -1,5 +1,5 @@
 - 👋 Hi, I'm NYALWAL WYCLIFE ODHIAMBO
-- 👀 I’m interested in learning computer programming
+- 👀 I’m currently interested in learning computer programming
 - 💞️ I’m looking to collaborate on future projects
 - 📫 You can contact me on wyclifenyalwal@gmail.com
 - ⚡ You can also reach me on other social media @wyck_flix
